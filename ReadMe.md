@@ -9,8 +9,6 @@ UM CARA MEIO MALUCO, LOUCO POR UNS DADOS <br>- NÃO ME APAREÇA COM OUTRO DATABA
 ![](https://github-readme-streak-stats.herokuapp.com/?user=Kozato01&theme=dark&hide_border=false)<br/>
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=Kozato01&theme=dark&hide_border=false&include_all_commits=true&count_private=false&layout=compact)
 
-### 😂 RANDOM DE???
-<img src="https://random-memer.herokuapp.com/" width="512px"/>
 
 ---
 [![](https://visitcount.itsvg.in/api?id=Kozato01&icon=0&color=0)](https://visitcount.itsvg.in)
