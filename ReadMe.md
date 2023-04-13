@@ -12,3 +12,5 @@ UM CARA MEIO MALUCO, LOUCO POR UNS DADOS <br>- NÃO ME APAREÇA COM OUTRO DATABA
 [![](https://visitcount.itsvg.in/api?id=Kozato01&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+
+(https://www.credly.com/earner/earned/share/1c4c7b4c-6072-4fce-9813-1fd049384820)
